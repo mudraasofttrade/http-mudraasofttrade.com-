@@ -1,0 +1,2 @@
+# http-mudraasofttrade.com-
+Mudraa Soft Trade provides buy sell signal software, nifty live chart with buy sell signals, auto buy sell signal software, intraday buy sell signal software, technical analysis software india, buy sell signal, best technical analysis software for indian stock market, nifty buy sell signal software, automatic buy sell signal software, 100 accurate buy sell signal, intraday trading software, buy sell signal software indian stock market
